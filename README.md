@@ -43,6 +43,8 @@ I twice saved Jeff Bezos from embarrassment.
 #### 💞️ I’m looking to collaborate on ...
 *  How to take over the world
 
+![](https://upload.wikimedia.org/wikipedia/en/4/47/Pinky_and_the_Brain_vol1.jpg)
+
 ---
 
 ### 📫 How to reach me ...
